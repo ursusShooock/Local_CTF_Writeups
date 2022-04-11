@@ -1,4 +1,4 @@
-The Last Jedi: What it takes do you have?
+
 ![image](https://user-images.githubusercontent.com/55281657/159541839-54fdb41b-de2e-4526-871b-b3fac44362ec.png)
 
 
